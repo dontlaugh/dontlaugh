@@ -3,7 +3,6 @@
 
 
 
-
           If there was a time, however, when life had its own unity, before
         the need for philosophy arose, then there might in principle be a time
         in which that unity was reconstituted as it were from within society 
